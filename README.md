@@ -1,2 +1,2 @@
 # gionateras.github.io
- Mi hoja de vida (gracias a CodigoFacilito)
+ Aquí aprenderás más acerca de mí y de mi preparación académica
